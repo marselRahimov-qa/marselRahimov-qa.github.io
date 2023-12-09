@@ -1,1 +1,0 @@
-# marselRahimov-qa.github.io
